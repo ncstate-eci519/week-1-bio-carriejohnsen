@@ -1,4 +1,4 @@
-# [Carrie Johnsen]
+# Carrie Johnsen
 
 ## About Me
 Hello! My name is Carrie. I am currently a 6th grade social studies teacher at **Smithfield Middle School** in JOCO. I am one of the many transplants to NC.  I am originally from Sleepy Hollow, IL.  I moved to NC in 2016 after I graduated from [**Eastern Illinois University**](https://www.eiu.edu)  I do mean that literally right after graduation was a car ride to Raleigh. I recently adopted a Boston Terrier and her name is [Charlie](https://docs.google.com/presentation/d/e/2PACX-1vToUPOw51OlOe0qcKyvo7bl-PEJm1Qhk9v1aL0zYe-j0F7nPyeXj977sDwP_yA3jiTjQY9xalaDy_Dc/pub?start=false&loop=false&delayms=3000) At the middle school I work at I am the Cheerleading coach, on the AVID committee and in charge of updating the website.In my free time I enjoy hanging out with my family and friends. 
